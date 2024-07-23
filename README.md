@@ -10,7 +10,7 @@ FSCloud机场是直连线路,入口为 Azure AWS 亚太, 最大限度保障用�
 
 netflix等主流流媒体解锁。1
 
-## FSCloud优惠码1
+## FSCloud优惠码11
 
 暂无最新优惠码
 
